@@ -4,11 +4,11 @@
 </font></b>
 
  
-<p><b><font size="6" face="黑体">导 航 永 久 域 名<a href="Http://cz888.app">Http://cz888.app</a> 
+<p><b><font size="6" face="黑体">导 航 永 久 域 名<a href="Http://cz888.app">Http://cz888.app</a> 失效
 </font></b> </p>
-<p><b><font size="6" face="黑体">&#11088;地址一 ：<a href="Http://cz777.app">Http://cz777.app</a> 
+<p><b><font size="6" face="黑体">&#11088;地址一 ：<a href="Http://cz777.app">Http://cz777.app</a> 失效
 </font></b> </p>
-<p><b><font size="6" face="黑体">&#11088;备用导航 ：<a href="Http://cz999.app">Http://cz999.app</a> 
+<p><b><font size="6" face="黑体">&#11088;备用导航 ：<a href="Http://cz999.app">Http://cz999.app</a> 失效
 </font></b> </p>
 <p><b><font size="6" face="黑体">&#8252;&#8252;长按复制到浏览器里面访问以上网址&#8252;
 
@@ -22,5 +22,5 @@
 
 
 </p>
-<p><b><font size="6" face="黑体">谨记永久发布页哦！<a href="Http://cz888.app">Http://cz888.app</a> 
+<p><b><font size="6" face="黑体">谨记永久发布页哦！<a href="Http://cz888.app">Http://cz888.app</a> 失效
 </font></b> </p>
